@@ -1,3 +1,7 @@
+I am NOT a designer. Or photographer. Or artist.
+I am a Developer. Anti-social. Nerdy.
+
+
 <br><br><br><br><br><br>
 
 
